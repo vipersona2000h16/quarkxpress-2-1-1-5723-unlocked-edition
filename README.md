@@ -1,1 +1,1 @@
-# z9w147jjl6
+https://github.com/azbgeux2hy/azbgeux2hy/invitations
